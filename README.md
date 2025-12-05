@@ -1,1 +1,1 @@
-# Einstein-Hilbert.github.io
+# Einstein Hilbert Group
